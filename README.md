@@ -1,0 +1,1 @@
+I have completed almost half of the "The Odin Project" curriculum(42%), I hope I won't lose my motivation beacause I'd love to do coding as a job. 
